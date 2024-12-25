@@ -101,5 +101,5 @@ Special thanks to the following:
 
 ---
 
-For any questions or issues, feel free to contact Charanyelimela@gmail.com
+For any questions or issues, feel free to contact jangakishore06@gmail.com
 
